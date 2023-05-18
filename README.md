@@ -1,15 +1,8 @@
-### oii
+ˀ ๑ „ bem vinde ao meu orkut ♡°୭
 
+✦ - - - - - - ↷ .    .    .
+
+» 1/A
+» 🍪 ⋆ 🍑  🎀  𝒜 𝒻♡𝓇ç𝒶 𝒹𝒶 𝓈𝓊𝒶 𝒾𝓃𝓋𝑒𝒿𝒶 é 𝒶 𝓋𝑒𝓁🍪𝒸𝒾𝒹𝒶𝒹𝑒 𝒹🏵 𝓂𝑒𝓊 𝓈𝓊𝒸𝑒𝓈𝓈🌞  🎀  🍑 ⋆ 🍪
 <!--
-**debxra/debxra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on por enqt desempregada!
-- 🌱 I’m currently learning pensamento computacional
-- 👯 I’m looking to collaborate on ygona
-- 🤔 I’m looking for help with ariane
-- 💬 Ask me about divas pop
-- 😄 Pronouns: ela/dela
-- ⚡ Fun fact: sou a promeira mulher viado
--->
