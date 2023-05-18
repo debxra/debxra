@@ -1,6 +1,6 @@
 ˀ ๑ „ bem vinde ao meu orkut ♡°୭
 
-✦ - - - - - - ↷ .    .    .
+·   .       .      .   . ✧
 
 » 1/A
 
