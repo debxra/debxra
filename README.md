@@ -12,7 +12,8 @@
 
 
 
-»![image](https://github.com/debxra/debxra/assets/133982960/d586502a-186d-4139-8caf-59132c91a03d)
+»![image](https://github.com/debxra/debxra/assets/133982960/e5d0a83b-858f-4a47-856b-ef863e1ee08a)
+
 
 
 <!--
